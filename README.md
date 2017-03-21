@@ -1,3 +1,3 @@
 # exemple-github
 
-## Salut les terrins :]
+## Salut les terriens :]
